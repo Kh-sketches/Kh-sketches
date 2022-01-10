@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Khirthika
+- 👋 Hi, I’m Khirthika with 18yrs of experience in BFS IT industry, playing a leadership role in the organisation
 - 👀 I’m interested in leadership roles where I can be part of the driving the organisation goals together with the teams and continue the momentum of growth
 - 🌱 I’m currently learning on Fintech with Univ of Berkeley, to specialise my knowledge to understand the ecosystem better
 - 💞️ I’m looking to collaborate on driving business goals, building the teams, mentoring and coaching
